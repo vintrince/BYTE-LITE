@@ -4,7 +4,7 @@
 
 ---  
 
-> **`Updated To` The New Version**
+> **`Updated To` The New Version 💙**
 ---
 
 ```
