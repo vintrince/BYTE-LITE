@@ -13,6 +13,6 @@ BYTE-LITE BY TalkDrove 💙
 
 --- 
 
-<a><img src='(https://i.ibb.co/QjJ37L1/Manul-Ofc-X.jpg)'/></a>
+<a><img src='https://i.ibb.co/QjJ37L1/Manul-Ofc-X.jpg'/></a>
 
 ---
